@@ -1,2 +1,3 @@
 # MetaGEX
 #MetaGEX is a new project working on a number of innovations to the metaverse.
+we would love to share more but we need to do a little homework first. MetaGEX coming soon.......
